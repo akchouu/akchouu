@@ -1,16 +1,20 @@
-## Hi there 👋
+<div align="center">
+  
+![](https://komarev.com/ghpvc/?username=decipherhomicide&color=red)
 
-<!--
-**akchouu/akchouu** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+</div>
 
-Here are some ideas to get you started:
+<div align="center">
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+homicipher gooners dni, im aware im part of the fandom but some of yall freak me out like theyre fictional bro
+</div>
+
+<div align="center">
+github is a work in progress, as is my rentry
+</div>
+
+<div align="center">
+
+[rentry](https://rentry.co/-prettiestprincess) · [hoard](https://rentry.co/nakoshoard) · [retrospring](https://retrospring.net/@anthropicdesire)
+
+</div>
