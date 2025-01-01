@@ -6,7 +6,8 @@
 
 <div align="center">
 
-homicipher gooners dni, im aware im part of the fandom but some of yall freak me out like theyre fictional bro
+someone match githubs with me im oh so lonely
+
 </div>
 
 <div align="center">
