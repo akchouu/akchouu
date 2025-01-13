@@ -11,7 +11,7 @@ someone match githubs with me im oh so lonely
 </div>
 
 <div align="center">
-github is a work in progress, as is my rentry
+refollowing all my friends cause im migrating to this acc ^^
 </div>
 
 <div align="center">
