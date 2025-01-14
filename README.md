@@ -33,7 +33,7 @@ youll find me under/above bakery, or at the sth area.
 
 <div align="center">
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31xu3wwd6hv7usmrqh2dnoppcqbq&cover_image=true&theme=natemoo-re&show_offline=false&background_color=3e1919&interchange=false&bar_color=4e93b1&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31xu3wwd6hv7usmrqh2dnoppcqbq&cover_image=true&theme=natemoo-re&show_offline=true&background_color=3e1919&interchange=false&bar_color=4e93b1&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
 
 </div>
 
