@@ -11,6 +11,12 @@ someone match githubs with me im oh so lonely
 </div>
 
 <div align="center">
+
+free palestine
+
+</div>
+
+<div align="center">
 refollowing all my friends cause im migrating to this acc ^^
 </div>
 
