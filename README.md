@@ -29,7 +29,7 @@ youll find me under/above bakery, or at the sth area.
 
 <div align="center">
 
-[rentry](https://rentry.co/-prettiestprincess) · [hoard](https://rentry.co/nakoshoard) · [retrospring](https://retrospring.net/@anthropicdesire)
+[rentry](https://rentry.co/-prettiestprincess) · [hoard](https://rentry.co/nakoshoard) · [retrospring](https://retrospring.net/@anthropicdesire) · [strawpage me](https://akoswonderland.straw.page)
 
 </div>
 
