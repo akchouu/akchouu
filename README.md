@@ -6,7 +6,7 @@
 
 <div align="center">
 
-![my own art :3](https://files.catbox.moe/o862g1.png)
+![my own art :3](https://files.catbox.moe/2lq3wm.png)
 
 </div>
 
