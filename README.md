@@ -6,12 +6,6 @@
 
 <div align="center">
 
-![my own art :3](https://files.catbox.moe/2lq3wm.png)
-
-</div>
-
-<div align="center">
-
 someone match githubs with me im oh so lonely
 
 </div>
