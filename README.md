@@ -30,7 +30,7 @@ refollowing all my friends cause im migrating to this acc ^^
 youll find me under/above bakery, or at the sth area.
 </div>
 <div align="center">
-c+h is okay as long as im not next to a friend!! please w2i since im often offtab
+c+h is okay as long as im not next to a friend!! if anything PLEASE sit next to me. also pls w2i since im often offtab
 </div>
 
 
