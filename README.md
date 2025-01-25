@@ -18,7 +18,7 @@ dm me if any of you find the artist in my pfp !
 
 ![](https://files.catbox.moe/lsqv00.gif) ![](https://files.catbox.moe/esemrj.gif) ![](https://files.catbox.moe/brz4bz.gif) ![](https://files.catbox.moe/dscbhr.gif) ![](https://files.catbox.moe/87y93a.gif) 
 
-free palestine
+free [palestine](https://arab.org/click-to-help/palestine/)
 
 </div>
 
