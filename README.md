@@ -5,12 +5,6 @@
 </div>
 
 <div align="center">
-
-someone match githubs with me im oh so lonely
-
-</div>
-
-<div align="center">
 dm me if any of you find the artist in my pfp !
 </div>
 
