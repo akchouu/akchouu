@@ -26,7 +26,7 @@ c+h is okay as long as im not next to a friend!! if anything PLEASE sit next to 
 
 <div align="center">
 
-[rentry](https://rentry.co/-prettiestprincess) · [hoard](https://rentry.co/nakoshoard) · [retrospring](https://retrospring.net/@anthropicdesire) · [strawpage me](https://akoswonderland.straw.page)
+rentry is being remade! · [retrospring](https://retrospring.net/@anthropicdesire) · [strawpage me](https://akoswonderland.straw.page)
 
 </div>
 
