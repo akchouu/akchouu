@@ -17,7 +17,7 @@ INTERACT PLEASE PLEASE PLEASE I WANT FRIENDS IM SO,LONGELY OHMYGOOODDDDD
 </div>
 
 <div align="center">
-youll find me under/above bakery, or at the sth/roblox area.
+youll find me under/above market, or at the sth/roblox area.
 </div>
 <div align="center">
 c+h is okay as long as im not next to a friend!! if anything PLEASE sit next to me. also pls w2i since im often offtab
