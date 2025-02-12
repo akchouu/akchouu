@@ -17,7 +17,7 @@ INTERACT PLEASE PLEASE PLEASE I WANT FRIENDS IM SO,LONGELY OHMYGOOODDDDD
 </div>
 
 <div align="center">
-youll find me under/above market, or at the sth/roblox area.
+super sorry if any of u do sometbijg sweet for me im not exactly the best at vocalising my gratituddw i love u lall though thabk you
 </div>
 <div align="center">
 c+h. did i mention c+h? c+h me. PLEASE c+h me. c+h me btw. c+h freely! i dont mind c+h! please c+h. c+h me! c+ w2i since im often offtab
