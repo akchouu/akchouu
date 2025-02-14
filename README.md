@@ -2,12 +2,6 @@
   
 ![](https://komarev.com/ghpvc/?username=akchouu&+color=blue&label=★ )
 
-</div>
-
-<div align="center">
-
-![](https://files.catbox.moe/lsqv00.gif) ![](https://files.catbox.moe/esemrj.gif) ![](https://files.catbox.moe/brz4bz.gif) ![](https://files.catbox.moe/dscbhr.gif) ![](https://files.catbox.moe/87y93a.gif) 
-
 free [palestine](https://arab.org/click-to-help/palestine/)
 
 </div>
