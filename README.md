@@ -7,14 +7,11 @@ free [palestine](https://arab.org/click-to-help/palestine/)
 </div>
 
 <div align="center">
-INTERACT PLEASE PLEASE PLEASE I WANT FRIENDS IM SO,LONGELY OHMYGOOODDDDD
+interact , c+h freely
 </div>
 
 <div align="center">
-super sorry if any of u do sometbijg sweet for me im not exactly the best at vocalising my gratituddw i love u all though thabk you
-</div>
-<div align="center">
-c+h. did i mention c+h? c+h me. PLEASE c+h me. c+h me btw. c+h freely! i dont mind c+h! please c+h. c+h me! c+ w2i since im often offtab
+#im not the best at vocalising gratitude. ily all, thank you
 </div>
 
 
