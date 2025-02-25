@@ -22,7 +22,7 @@ interact , c+h freely
 
 <div align="center">
 
-rentry is being remade! · [retrospring](https://retrospring.net/@anthropicdesire) · [strawpage me](https://akoswonderland.straw.page)
+[rentry for now](https://rentry.co/dollicore) · [retrospring](https://retrospring.net/@anthropicdesire) · [strawpage me](https://akoswonderland.straw.page)
 
 </div>
 
