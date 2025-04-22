@@ -8,7 +8,7 @@ free [palestine](https://arab.org/click-to-help/palestine/)
 
 <div align="center">
   
-![](https://files.catbox.moe/bhxhyr.png)
+![](https://files.catbox.moe/blgjox.png)
 </div>
 
 <div align="center">
