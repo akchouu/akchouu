@@ -16,7 +16,7 @@ interact , c+h freely
 </div>
 
 <div align="center">
-#im not the best at vocalising gratitude. ily all, thank you
+the nefarious nako when you give her a cake in a myth game:
 </div>
 
 
