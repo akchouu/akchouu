@@ -19,6 +19,10 @@ interact , c+h freely
 the nefarious nako when you give her a cake in a myth game:
 </div>
 
+<div align="center">
+r:c fans makeout sesh at 7:58 pm gmt BE THERE
+</div>
+
 
 <div align="center">
 
