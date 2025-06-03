@@ -7,7 +7,7 @@ free [palestine](https://arab.org/click-to-help/palestine/)
 </div>
 
 <div align="center">
-hi
+nako: hi oomfs hi moots hi everyone!! the nefarious exams of 2025 that will determine my life: hey~
 </div>
 
 
