@@ -7,25 +7,7 @@ free [palestine](https://arab.org/click-to-help/palestine/)
 </div>
 
 <div align="center">
-  
-
-
-https://github.com/user-attachments/assets/8c82ec04-de16-4003-a70b-f7fd03e102eb
-
-
-
-</div>
-
-<div align="center">
-like mother like son or whatever they call it
-</div>
-
-<div align="center">
-interact , c+h freely
-</div>
-
-<div align="center">
-r:c fans makeout sesh at 7:58 pm gmt BE THERE
+hi
 </div>
 
 
