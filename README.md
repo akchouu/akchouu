@@ -4,7 +4,7 @@
 
 free [palestine](https://arab.org/click-to-help/palestine/)
 
->_<
+> >_<
 
 </div>
 
