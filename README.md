@@ -4,7 +4,7 @@
 
 free [palestine](https://arab.org/click-to-help/palestine/)
 
-> icon tba! im makng a new onee :3 
+> ![](https://files.catbox.moe/aoci3q.png)
 
 </div>
 
