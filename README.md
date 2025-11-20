@@ -4,7 +4,7 @@
 
 free [palestine](https://arab.org/click-to-help/palestine/)
 
-> ![)
+> ![]()
 
 </div>
 
