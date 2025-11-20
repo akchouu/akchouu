@@ -4,7 +4,7 @@
 
 free [palestine](https://arab.org/click-to-help/palestine/)
 
-> ![@Nikkii_zo on twt](https://files.catbox.moe/s194e8.png)
+> ![)
 
 </div>
 
