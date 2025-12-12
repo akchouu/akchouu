@@ -5,8 +5,7 @@
 
 free [palestine](https://arab.org/click-to-help/palestine/)
 
-> ![til](https://media1.tenor.com/m/CAiEponsxaYAAAAd/wemmbu-taxduo.gif)
-
+> <img src="https://i.pinimg.com/736x/cf/fb/86/cffb8678a9448420311bb50ed742e6ba.jpg" alt="Story pin image"/>
 </div>
 
 <div align="center">
