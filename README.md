@@ -30,9 +30,3 @@ bipolar, iwc always‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎ c+h w2i
 [@pt-awards](https://github.com/pt-awards) do the winners get food as a reward
 
 </div>
-
-> BLINKIES SPAM
-
-> ![til](https://media1.tenor.com/m/q8qPa6PJe80AAAAC/wemmbu-big-wemmbu-fan.gif) ![blinkiesCafe-vj](https://github.com/user-attachments/assets/475ce09a-8013-4def-ad24-f701d758baf2) ![blinkiesCafe-QI](https://github.com/user-attachments/assets/ed94f1e1-33dc-42d1-aae1-52a63bd939a5) ![blinkiesCafe-g3](https://github.com/user-attachments/assets/dba79987-ea94-4216-8f5a-42c078e1e829) ![blinkiesCafe-QM](https://github.com/user-attachments/assets/dd34e5d2-ce59-4a62-94bb-506b648fe20b) ![blinkiesCafe-ZO](https://github.com/user-attachments/assets/d2118e00-c706-4014-9ad7-5c60c3fb45a2) ![blinkiesCafe-Zx](https://github.com/user-attachments/assets/21c02a13-d2f2-4c9e-96f3-42b6b22fb494) ![blinkiesCafe-QV](https://github.com/user-attachments/assets/ce359f69-60f0-46db-b5df-0502727b73a4)
-
-
