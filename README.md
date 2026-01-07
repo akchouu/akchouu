@@ -15,7 +15,7 @@ bipolar, iwc always‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎ c+h w2i
 
 <div align="center">
 
-[rentry for now](https://rentry.co/dollicore) · [retrospring](https://retrospring.net/@anthropicdesire) · [strawpage me](https://akoswonderland.straw.page)
+[lazy ass rentry about my bumass self](https://rentry.co/dollicore) · [strawpage me](https://akoswonderland.straw.page)
 
 </div>
 
