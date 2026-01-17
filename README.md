@@ -9,7 +9,7 @@ free [palestine](https://arab.org/click-to-help/palestine/)
 </div>
 
 <div align="center">
-bipolar, iwc always‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎ c+h w2i
+bipolar, iwc always‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎ c+h nd w2i always
 </div>
 
 
