@@ -32,3 +32,8 @@ bipolar, iwc always‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎ c+h nd w2i always
 [@pt-awards](https://github.com/pt-awards) do the winners get food as a reward
 
 </div>
+
+<div align="center">
+
+  ![](https://files.catbox.moe/7dcl3p.png)
+</div>
