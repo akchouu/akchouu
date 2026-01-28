@@ -37,3 +37,10 @@ bipolar, iwc always‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎ c+h nd w2i always
 
   ![](https://files.catbox.moe/7dcl3p.png)
 </div>
+
+<div align="center">
+  
+https://github.com/user-attachments/assets/9bc628a1-fe49-4cb8-b76a-05317419c407
+</div>
+
+
