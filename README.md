@@ -20,9 +20,9 @@ free [palestine](https://arab.org/click-to-help/palestine/)
 
 <div align="center">
 bipolar, iwc always‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎ c+h nd w2i always
-</div>
-
+  
 > chronic insomniac so im very slow at times
+</div>
 
 <div align="center">
 
