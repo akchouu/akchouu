@@ -44,7 +44,9 @@ bipolar, iwc always‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎ c+h nd w2i always
 <div align="center">
   
 
-https://github.com/user-attachments/assets/24e1f42f-8054-417f-a70a-fb00ccecea5a
+
+https://github.com/user-attachments/assets/7b874b0b-6094-491e-81ad-a1d6320a4fea
+
 
 
 </div>
