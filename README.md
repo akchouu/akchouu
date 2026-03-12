@@ -1,11 +1,15 @@
 
 <div align="center">
   
-![](https://komarev.com/ghpvc/?username=akchouu&+color=red&label=★ )
+![](https://komarev.com/ghpvc/?username=akchouu&+color=blue&label=恋 )
 
-free [palestine](https://arab.org/click-to-help/palestine/)
 
-> play suji no yatsura play suji no yatsura play suji no yatsura play suji no yatsura play suji no yatsura play suji no yatsura play suji no yatsura play suji no yatsura play suji no yatsura play suji no yatsura play suji no yatsura play suji no yatsura play suji no yatsura play suji no yatsura
+![ezgif com-resize](https://github.com/user-attachments/assets/a31d7a1c-9801-40c6-b7de-0c180b3b3542)
+
+
+support [palestine](https://arab.org/click-to-help/palestine/)
+
+> hop on that `"crossfire: bullet rain"` train
 
 > `[thomas] myempregstomac😂` goats of ponytown
 > 
@@ -31,6 +35,14 @@ bipolar, iwc always‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎ c+h nd w2i always
 </div>
 
 <div align="center">
+
+> links
+
+[straw](https://akoswonderland.straw.page) · [ata](https://nakosotherhalf.atabook.org) · [guns.lol](https://guns.lol/akchouu)
+
+</div>
+
+<div align="center">
   
 [@pt-awards](https://github.com/pt-awards) do the winners get food as a reward
 
@@ -38,15 +50,7 @@ bipolar, iwc always‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎ c+h nd w2i always
 
 <div align="center">
 
-  ![](https://files.catbox.moe/7dcl3p.png)
-</div>
-
-<div align="center">
-  
-
-
-https://github.com/user-attachments/assets/7b874b0b-6094-491e-81ad-a1d6320a4fea
-
+https://github.com/user-attachments/assets/6c0dde04-ac27-471a-b9ee-ee41def9baea
 
 
 </div>
