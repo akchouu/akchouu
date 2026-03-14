@@ -24,12 +24,12 @@ hop on that [crossfire: bullet rain](https://www.youtube.com/watch?v=p5Hxkgbez-w
 
 <div align="center">
 
-i'm nako i like stickfigures
+i like stickfigures
 
 bipolar, iwc always‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎ c+h nd w2i always
 
-ff2 call me atlas as well PLEASE call me atlas
-  
+please call me atlas or nako
+
 > chronic insomniac so im very slow at times
 </div>
 
