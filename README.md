@@ -9,7 +9,7 @@
 
 support [palestine](https://arab.org/click-to-help/palestine/)
 
-hop on that `"crossfire: bullet rain"` train
+hop on that [crossfire: bullet rain](https://www.youtube.com/watch?v=p5Hxkgbez-w) train
 
 > `[thomas] myempregstomac😂` goats of ponytown
 > 
