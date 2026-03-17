@@ -55,7 +55,6 @@ please call me atlas or nako
 
 <div align="center">
 
-https://github.com/user-attachments/assets/6c0dde04-ac27-471a-b9ee-ee41def9baea
 
 
 </div>
