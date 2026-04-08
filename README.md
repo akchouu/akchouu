@@ -28,7 +28,7 @@ i like stickfigures
 
 bipolar, iwc always‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎ c+h nd w2i always
 
-please call me atlas or nako
+*please call me **atlas** or nako*
 
 > chronic insomniac so im very slow at times
 </div>
