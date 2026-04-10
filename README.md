@@ -1,4 +1,3 @@
-
 <div align="center">
   
 ![](https://komarev.com/ghpvc/?username=akchouu&+color=blue&label=恋 )
@@ -52,5 +51,9 @@ bipolar, iwc always‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎ c+h nd w2i always
 [@pt-awards](https://github.com/pt-awards) do the winners get food as a reward
 
 </div>
+
+
+
+https://github.com/user-attachments/assets/13d1dc13-e064-4aa7-a74a-b296601a2606
 
 
