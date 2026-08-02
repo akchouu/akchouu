@@ -31,8 +31,6 @@ bipolar, iwc always‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎ c+h nd w2i always
 
 > chronic insomniac so im very slow at times
 
-> you can take inspo off my skins just don't downright copy or reupload
-</div>
 
 <div align="center">
 
