@@ -23,8 +23,6 @@ hop on that [crossfire: bullet rain](https://www.youtube.com/watch?v=p5Hxkgbez-w
 
 <div align="center">
 
-i like stickfigures
-
 bipolar, iwc always‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎ c+h nd w2i always
 
 *please call me **atlas** or nako*
