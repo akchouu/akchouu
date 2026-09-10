@@ -2,19 +2,16 @@
   
 ![](https://komarev.com/ghpvc/?username=akchouu&+color=blue&label=恋 )
 
-
-support [palestine](https://arab.org/click-to-help/palestine/)
-
-hop on that [crossfire: bullet rain](https://www.youtube.com/watch?v=p5Hxkgbez-w) train
+emo? nah, i'm an e-moe. (￣^￣)ゞ
 
 </div>
 
 
 <div align="center">
 
-bipolar, iwc always‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎ c+h nd w2i always
+diagnosed w/ bipolar disorder, depression + adhd ; iwvec please
 
-*please call me **atlas** or nako*
+*I go by a list of names. Usually it's either Atlas, or Fuyu. Do not call me Nako unless if we are close friends.*
 
 > chronic insomniac so im very slow at times
 
@@ -36,6 +33,8 @@ bipolar, iwc always‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎ c+h nd w2i always
 <div align="center">
   
 [@pt-awards](https://github.com/pt-awards) do the winners get food as a reward
+
+[help palestine](https://arab.org/click-to-help/palestine/)    [watch cf:br](https://www.youtube.com/watch?v=p5Hxkgbez-w)
 
 </div>
 
