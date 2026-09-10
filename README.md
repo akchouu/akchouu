@@ -11,7 +11,7 @@ emo? nah, i'm an e-moe. (￣^￣)ゞ
 
 diagnosed w/ bipolar disorder, depression + adhd ; iwvec please
 
-*I go by a list of names. Usually it's either Atlas, or Fuyu. Do not call me Nako unless if we are close friends.*
+*Man of many names. Call me akchouu, fuyu or atlas. Do not call me Nako unless if we are close friends.*
 
 > chronic insomniac so im very slow at times
 
