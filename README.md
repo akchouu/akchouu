@@ -7,14 +7,6 @@ support [palestine](https://arab.org/click-to-help/palestine/)
 
 hop on that [crossfire: bullet rain](https://www.youtube.com/watch?v=p5Hxkgbez-w) train
 
-> `[thomas] myempregstomac😂` goats of ponytown
-> 
-> ![](https://files.catbox.moe/vnqani.png)
-</div>
-<div align="center">
-
- ‎ ‎ ‎  ‎ ‎  ‎   [jay](https://github.com/chemlqb)‎ ‎ ‎ ‎  ·‎   ‎ ‎ ‎ ‎ ‎ [ako](https://github.com/akchouu)‎ ‎ ‎   ‎‎‎ ‎ ·‎  ‎ ‎ ‎ ‎‎ [bag](https://github.com/VULTUSLUMINARIA)‎ ‎ ‎  ‎   ·‎ ‎ ‎ ‎  [wumble](https://github.com/tirgery123)‎ ‎ ‎ ·‎ ‎ ‎  [nama](https://github.com/pwretty)‎   ‎ ·‎ ‎ ‎ [brandon](https://github.com/Starscreamr)
-
 </div>
 
 
