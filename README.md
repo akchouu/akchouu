@@ -18,8 +18,6 @@ diagnosed w/ bipolar disorder, depression + adhd ; iwvec please
 
 <div align="center">
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31xu3wwd6hv7usmrqh2dnoppcqbq&cover_image=true&theme=natemoo-re&show_offline=true&background_color=3e1919&interchange=false&bar_color=4e93b1&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile) ![](https://files.catbox.moe/pj889t.png) 
-
 </div>
 
 <div align="center">
@@ -31,6 +29,8 @@ diagnosed w/ bipolar disorder, depression + adhd ; iwvec please
 </div>
 
 <div align="center">
+
+![](https://files.catbox.moe/pj889t.png) 
   
 [@pt-awards](https://github.com/pt-awards) do the winners get food as a reward
 
