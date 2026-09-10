@@ -3,9 +3,6 @@
 ![](https://komarev.com/ghpvc/?username=akchouu&+color=blue&label=恋 )
 
 
-![ezgif com-resize](https://github.com/user-attachments/assets/a31d7a1c-9801-40c6-b7de-0c180b3b3542)
-
-
 support [palestine](https://arab.org/click-to-help/palestine/)
 
 hop on that [crossfire: bullet rain](https://www.youtube.com/watch?v=p5Hxkgbez-w) train
