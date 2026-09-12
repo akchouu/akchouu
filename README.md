@@ -11,7 +11,7 @@ emo? nah, i'm an e-moe. (￣^￣)ゞ
 
 diagnosed w/ bipolar disorder, depression + adhd ; iwvec please
 
-*man of many names. call me akchouu, fuyu or atlas.*
+*man of many names. call me akchouu, fuyu or **atlas**.*
 
 > chronic insomniac so im very slow at times
 
